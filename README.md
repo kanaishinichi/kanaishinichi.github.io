@@ -1,0 +1,1 @@
+# kanaishinichi.github.io
